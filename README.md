@@ -27,5 +27,6 @@
 ###### Fov Circle off/on
 ###### Crosshair
 
-## Video of cheating. (made by my friend)
-![Mozilla](https://streamable.com/xmx49y)
+## Video of cheat showing. (made by my friend)
+
+https://streamable.com/pajjb4
